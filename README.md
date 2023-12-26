@@ -11,4 +11,4 @@
 
 <br/>
 
-![Фото](img/dXMl2GDzSNU.jpg)
+
